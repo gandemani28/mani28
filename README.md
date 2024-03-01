@@ -1,3 +1,3 @@
 # mani28
-komapally
+kompally
 there are so many students
